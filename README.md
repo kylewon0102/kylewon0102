@@ -3,7 +3,7 @@
 I am a student at Columbia Universty double majoring in **Computer Science (AI track)** and **Economics**,
 I am currently interested in **Artificial Intelligence internships** and **Software Engineering Interns**.
 
-Participated as a member in Columbia Men's Swim Team: [Kyle](https://www.swimcloud.com/swimmer/902649/) until *Sophomore year* of College, then took a **couple of gap years** to finish service for Korea: [ROKMC](https://kookbang.dema.mil.kr/newsWeb/20231026/1/ATCE_CTGR_0050110000/view.do) /p>
+Participated as a member in Columbia Men's Swim Team: [Kyle](https://www.swimcloud.com/swimmer/902649/) until *Sophomore year* of College, then took a couple of gap years to finish service: [ROKMC](https://kookbang.dema.mil.kr/newsWeb/20231026/1/ATCE_CTGR_0050110000/view.do)
 
 --
 Planning to return to Columbia in Fall 2025, and also the Mens swim team in the same year
