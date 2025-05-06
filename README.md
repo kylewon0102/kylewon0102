@@ -13,10 +13,8 @@ Then took a couple of gap years to finish service: [ROKMC](https://kookbang.dema
 **Finished and Planning to Return to Columbia Fall of 2025.**
 
 ---
-Planning to return to Columbia in Fall 2025, and also the Mens swim team in the same year
 
- <p align="left"> <img src="https://komarev.com/ghpvc/?username=kylewon0102&label=kylewon0102%20Profile%20views&color=0e75b6&style=flat" alt="kylewon0102" /> 
-   <img src="https://komarev.com/ghpvc/?username=2kylewon0102&label=2kylewon0102%20Profile%20views&color=0e75b6&style=flat" alt="2kylewon0102" /> </p>
+ <p align="left"> <img src="https://komarev.com/ghpvc/?username=kylewon0102&label=kylewon0102%20Profile%20views&color=0e75b6&style=flat" alt="kylewon0102" />  </p>
 
 ---
 
